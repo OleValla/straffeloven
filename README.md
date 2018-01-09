@@ -1,4 +1,4 @@
-# Straffeloven 2005 - se [lovdata](https://lovdata.no/dokument/NL/lov/2005-05-20-28?q=straffeloven 2005)
+# Straffeloven 2005 - se [lovdata](https://lovdata.no/dokument/NL/lov/2005-05-20-28?q=straffeloven%202005)
 
 * 1\. oktober 2015: Erstattet Straffeloven 1902.
 * Loven kan anvendes f.eks ved:
